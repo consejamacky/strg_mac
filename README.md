@@ -1,1 +1,0 @@
-# strg_mac
